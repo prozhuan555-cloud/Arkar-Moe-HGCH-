@@ -1,2 +1,0 @@
-# Arkar-Moe-HGCH-
-A
